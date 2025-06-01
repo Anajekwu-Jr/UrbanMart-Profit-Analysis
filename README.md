@@ -79,7 +79,7 @@ The dashboard provides a clear snapshot of UrbanMart’s sales and profit perfor
 ## 🔗 Contact
 For questions or collaboration:  
 📧 [anajekwujr@gmail.com]  
-🔗 [www.linkedin.com/in/chidera-anajekwu]
+🔗 [www.linkedin.com/in/Chidera-Anajekwu]
 
 ---
 
